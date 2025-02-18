@@ -1,4 +1,4 @@
-# Caterpillar Manual Download – Save Time & Money on Repairs
+# Free Caterpillar Manual Download – Save Time & Money on Repairs
 
 ## Why You Need a Caterpillar Service Manual
 
